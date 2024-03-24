@@ -14,5 +14,3 @@ For support or inquiries, reach out to us via:
 
 - Email: archways@gmx.us
 - Website: http://www.Software404.org/
-
-Software404 LLC – where your digital challenges meet innovative solutions.
